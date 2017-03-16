@@ -1,7 +1,9 @@
+---
 title: "A beginners’ guide to Posting on TSGC"
 date: 2017-03-15T15:04:10.000Z
 description: Today we will discover the best way to post on this template
 image: /img/blog/chemex.jpg
+---
 
 I wonder why I can't get new posts to show up?
 
