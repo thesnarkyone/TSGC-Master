@@ -1,7 +1,7 @@
 ---
 title: "Casefile Violet-Johnson-Romani"
 date: 2017-01-04T15:04:10.000Z
-description: Missing arms
+description: Missing arms show up in South Dakota
 image: /img/blog/33278v.jpg
 ---
 
