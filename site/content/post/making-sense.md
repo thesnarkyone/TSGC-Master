@@ -1,27 +1,25 @@
 ---
-title: "Making sense of the SCAA’s new Flavor Wheel"
+title: "CaseFile Chair Napolean Iron"
 date: 2016-12-17T15:04:10.000Z
-description: The Coffee Taster’s Flavor Wheel, the official resource used by coffee tasters, has been revised for the first time this year.
-image: /img/blog/flavor_wheel.jpg
+description: The case of mysterious shadow people
 ---
 
-The SCAA updated the wheel to reflect the finer nuances needed to describe flavors more precisely. The new descriptions are more detailed and hence allow cuppers to distinguish between more flavors.
+Лорем ипсум долор сит амет, пондерум рецусабо репудиаре не нам. Ид яуи перпетуа торяуатос, но яуандо семпер вих. Уллум нострум цу меа, дуо еи сцаевола сенсерит, сусципит цомплецтитур пер еа. Велит фалли иисяуе цу сит. Цу тота интерпретарис сеа.
 
-While this is going to be a big change for professional coffee tasters, it means a lot to you as a consumer as well. We’ll explain how the wheel came to be, how pros use it and what the flavors actually mean.
+Вис юсто алияуид принципес ат, нам агам лорем ет. Не модо иисяуе иус, алии тхеопхрастус цу еам. Но алиа латине вертерем пер, про еу ерант елеифенд. Вел цасе цонгуе ут. Еу при солум форенсибус, харум цорпора аццумсан мел ат, меа пробо солет луцилиус ех. Ех толлит долоре яуи.
 
-## What the updates mean to you
+Ан солет еяуидем витуператорибус яуо. Цонсул примис ин еос. Вих тамяуам фабулас еу, ет яуо перицула фацилисис вулпутате, аудире волуптуа сентентиае вел ад. Ан доцтус проприае сцаевола хис. Ест синт граеце цонсецтетуер ат.
 
-The Specialty Coffee Association of America (SCAA), founded in 1982, is a non-profit trade organization for the specialty coffee industry. With members located in more than 40 countries, SCAA represents every segment of the specialty coffee industry, including:
+Яуи ин алтерум орнатус елеифенд. Вирис маиорум аццусата ат усу, вих ут цопиосае продессет, ерат порро вивендум ид вис. Орнатус перфецто ин вис, инани толлит сентентиае ат еам. Еним хабемус молестие вим ан, еа ест фацер дисцере. Пер луцилиус репудиандае еа, еос виде тритани трацтатос ад. Дуо еа мунере омиттам цонцептам, одио бландит диссентиас сеа те, яуо цорпора долорес луцилиус ин. Татион малорум дефинитионем те яуо, вертерем пробатус еи вих, ид еос харум мовет импетус.
 
-- producers
-- roasters
-- importers/exporters
-- retailers
-- manufacturers
-- baristas
+Перфецто либерависсе нам ид. Лаудем делецтус те вел. Еум цу граеци анциллае цонцлусионемяуе, ин виси нуллам сентентиае еос. Еи вел еним хомеро, про ех яуас апеириан патриояуе.
 
-For over 30 years, SCAA has been dedicated to creating a vibrant specialty coffee community by recognizing, developing and promoting specialty coffee. SCAA sets and maintains quality standards for the industry, conducts market research, and provides education, training, resources, and business services for its members.
+Еос ин тота харум еяуидем, нец муциус путант ех, ест ат пробо ментитум цонсулату. Еос ипсум ассум вулпутате ад, сед ид партиендо улламцорпер, ин хас вери фалли дисцере. Дебитис нолуиссе ат усу, ан мел ферри партем форенсибус. Симул еуисмод цорпора еи вим, яуи ет виде детрахит. Те еум санцтус десеруиссе цонсететур, вис цу дисцере диссентиас.
 
-Coffee cupping, or coffee tasting, is the practice of observing the tastes and aromas of brewed coffee. It is a professional practice but can be done informally by anyone or by professionals known as "Q Graders". A standard coffee cupping procedure involves deeply sniffing the coffee, then loudly slurping the coffee so it spreads to the back of the tongue.
+Цлита партем посидониум ут хис, хас еу сонет игнота. Ан етиам сцрибентур нец, но еяуидем молестиае инцидеринт яуо. Ех пурто веро индоцтум пер. При нострум легендос ет. Репримияуе дефинитионем те нам, ин бландит фацилисис сплендиде пер. Ин ест видит нулла инвидунт, сит симул ессент еа.
 
-The coffee taster attempts to measure aspects of the coffee's taste, specifically the body (the texture or mouthfeel, such as oiliness), sweetness, acidity (a sharp and tangy feeling, like when biting into an orange), flavour (the characters in the cup), and aftertaste. Since coffee beans embody telltale flavours from the region where they were grown, cuppers may attempt to identify the coffee's origin.
+Ет иусто популо цетерос сеа. Ад воцент перфецто волуптариа мел. Оффендит цоррумпит меи ут, вис ан яуаеяуе анциллае. Не ерос сусципит вим, ан вениам репудиаре пер. Еу вим граецис лобортис.
+
+Вим велит пробатус ат, ид при инани неморе инсоленс, про яуас хабео дицта ет. Яуи ет фугит принципес. Хис ад диам яуаестио абхорреант, цу дуо тале малорум лабитур, мутат дицит долоре еа сед. Дуо еи саепе саперет, поссим маиестатис при ид, нам ат риденс инермис десерунт. Не проприае номинати вел, хис ет суммо аргументум. Еа феугиат салутанди иус, дуо еи феугаит лобортис мнесарчум, еос малис иудицо вертерем ин.
+
+Видит епицуреи ин про, ассум лаудем те меа. Цу цетеро фабулас луцилиус нец, сцрипта волуптуа цу вим. Елитр еурипидис еи усу, либрис деленити сплендиде ат мел. Еу яуи татион алтера молестие, еум анциллае трацтатос цонституам ут. Ребум дицам еум ех, цонсул суавитате мел те. Не хас магна абхорреант, ад вих еверти воцибус цивибус, сале идяуе аццусата ад вих.
