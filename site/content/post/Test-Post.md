@@ -4,6 +4,7 @@ date: 2017-03-15T15:04:10.000Z
 description: The story of Lovenia Merchant
 image: /img/blog/tintypes/1489146580401-6acd01a1-2f24-4812-bd98-192abcc57c9e.jpg
 ---
+<blockquote>
 <div>
 <div>
 Investigation: Lovenia Merchant
@@ -15,6 +16,7 @@ Location: Hamilton County, TN
 Date: Seventh day of Novemember, 1887
 </div>
 </div>
+</blockquote>
 
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/302405036&amp;color=e6b976&amp;auto_play=false&amp;hide_related=false&amp;show_comments=true&amp;show_user=true&amp;show_reposts=false"></iframe>
