@@ -23,8 +23,12 @@ Date: Seventh day of Novemember, 1887
 
 
 <Div>
+<p>
 It is a picture of Slovenia Merchant, I have looked for this picture for a very long time. Lovenia was a well known witch in Hamilton County near Chattanooga. It is thought that Lovenia Merchant was captured and put to death in 1887 by the Golden Circle Rite, although it was never proven outside of the organization.
 Lovenia Merchant moved to America from Lyon France in 1798 with her family. In the late 1860's there was a rash of missing children outside of Chattanooga and she quickly became a suspect. Lovenia Merchant never married, spoke in strange guttural grunts when spoken to, and generally kept to herself. Some nights, it is said, that you could catch Lovenia dancing by firelight or digging in her yard.
+</p>
+<p>
 The Golden Circle Rite launched an investigation of Lovenia Merchant when the father of a six year old girl contacted them through the Mason's lodge in Chattanooga. Two weeks later, rumor spread through the area that the Golden Circle had found Lovenia Merchant with the remains of another child and tried her on the spot. The group lost two people that night, but was able to subdue Lovenia and killed her using Peine forte et dure, or a stone and iron crushing death.
 It is believed that this picture was taken a few years before her timely demise and kept in the archive of the Golden Circle Rite until it was lost to time.
+</p>
 </div>
