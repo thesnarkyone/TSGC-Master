@@ -24,7 +24,7 @@ Date: Seventh day of Novemember, 1887
 
 <Div>
 <p>
-It is a picture of Slovenia Merchant, I have looked for this picture for a very long time. Lovenia was a well known witch in Hamilton County near Chattanooga. It is thought that Lovenia Merchant was captured and put to death in 1887 by the Knights of the Golden Ring, although it was never proven outside of the organization.
+Lovenia was a well known witch in Hamilton County near Chattanooga. It is thought that Lovenia Merchant was captured and put to death in 1887 by the Knights of the Golden Ring, although it was never proven outside of the organization.
 Lovenia Merchant moved to America from Lyon France in 1798 with her family. In the late 1860's there was a rash of missing children outside of Chattanooga and she quickly became a suspect. Lovenia Merchant never married, spoke in strange guttural grunts when spoken to, and generally kept to herself. Some nights, it is said, that you could catch Lovenia dancing by firelight or digging in her yard.
 </p>
 <p>
